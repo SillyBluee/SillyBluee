@@ -18,6 +18,8 @@ I'm a small and very shy artist, I'm online almost every day on Pony Town or any
 
 𝒏𝒂𝒕𝒊𝒐𝒏𝒂𝒍𝒊𝒕𝒚 ﹕ARGENTINE, HELL YEAAAHHH 
 
+𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒈𝒂𝒎𝒆𝒔 ﹕Roblox, Pony town(?), Pokémon Soul Silver, Pokémon legends arceus, Pokémon Ultramoon, Super Smash Bros Brawl/Ultimate, Resident Evil 4 RMK, Cry of fear, Valorant, Muse dash, Pokemon Academy Life Forever
+
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒐𝒍𝒐𝒓 ﹕PINK PINK PINK PINK PINK AND ANY OTHER PASTEL COLOR
 
 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokémon, pokespe, pokepastas, sailor moon, pretty cure
