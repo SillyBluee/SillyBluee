@@ -38,6 +38,8 @@ I'm a small and very shy artist, I'm online almost every day on Pony Town or any
 
 𝑻𝒊𝒌𝒕𝒐𝒌 ﹕.ssillybluee / https://www.tiktok.com/@.ssillybluee
 
+𝑹𝒐𝒃𝒍𝒐𝒙 ﹕s0yMakii (GOLD AVATAR)
+
 ![gif](https://media1.tenor.com/m/QomVNL1jQJsAAAAC/flower-sun.gif)
 
 𝐈 𝐓𝐇𝐈𝐍𝐊 𝐓𝐇𝐀𝐓'𝐒 𝐀𝐋𝐋! 𝐓𝐇𝐀𝐍𝐊 𝐘𝐎𝐔 𝐕𝐄𝐑𝐘 𝐌𝐔𝐂𝐇 𝐀𝐍𝐃 𝐇𝐀𝐕𝐄 𝐀 𝐖𝐎𝐍𝐃𝐄𝐑𝐅𝐔𝐋 𝐃𝐀𝐘! 
