@@ -26,7 +26,7 @@ I usually find myself alone in Pony Town, always being hyperactive.
 
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒐𝒍𝒐𝒓 ﹕PINK PINK PINK PINK PINK AND ANY OTHER PASTEL COLOR
 
-𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokémon, pokespe, pokepastas, sailor moon, pretty cure
+𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokémon, pokespe, pokepastas, sailor moon, pretty cure, love live!
 
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒔𝒐𝒏𝒈 ﹕ 愛♡スクリ~ム! - AiScReam || Love wins all - IU || Awake and Alive - Skillet || BURN IT DOWN - LINKIN PARK
 
