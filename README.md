@@ -22,6 +22,8 @@ I usually find myself alone in Pony Town, always being hyperactive.
 
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 ﹕Ethan, Gold, Kenta, Silver (Pokémon and Pokespe!), Lyra, Crystal, Rosa, Blue, Green, Dawn, Calem, Serena 
 
+𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒔𝒉𝒊𝒑𝒔 ﹕Soulsilvershipping (SilverxLyra), Specialjewelshipping (SilverxCrystal), Oldrivalshipping (BluexGreen), Heartsoulshipping (EthanxLyra), Kalosshipping (CalemxSerena)
+
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒈𝒂𝒎𝒆𝒔 ﹕Roblox, Pony town(?), Pokémon Soul Silver, Pokémon legends arceus, Pokémon Ultramoon, Super Smash Bros Brawl/Ultimate, Resident Evil 4 RMK, Cry of fear, Valorant, Muse dash, Pokemon Academy Life Forever
 
 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒐𝒍𝒐𝒓 ﹕PINK PINK PINK PINK PINK AND ANY OTHER PASTEL COLOR
