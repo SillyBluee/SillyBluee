@@ -1,5 +1,3 @@
-![Profile view counter on Github](https://komarev.com/ghpvc/?username=SillyBluee)
-
 ![gif](https://media1.tenor.com/m/1APLmk8aD_MAAAAd/kris-pok%C3%A9mon.gif)
 
 I'm Blue or Lili, you can call me whatever you like, as long as it's one of those two!
