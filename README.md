@@ -1,4 +1,4 @@
-![gif](https://media1.tenor.com/m/1APLmk8aD_MAAAAd/kris-pok%C3%A9mon.gif)
+![gif](https://media1.tenor.com/m/m8WJFJXwvS4AAAAC/silver-silver-pokemon.gif)
 
 I'm Blue or Lili, you can call me whatever you like, as long as it's one of those two!
 
@@ -8,7 +8,7 @@ I'M 16, PLEASE DON'T BE WEIRD W ME.
 
 I'm a small artist, I'm online almost every day on Pony Town or any of my social media accounts.
 
-I usually find myself alone in Pony Town, always being hyperactive.
+I usually find myself alone in Pony Town or with my friend, bothering him or being quite clingy
 
  ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
@@ -36,7 +36,7 @@ I usually find myself alone in Pony Town, always being hyperactive.
 
 𝒐𝒕𝒉𝒆𝒓 ﹕I have an ocxcanon with Gold (Metalskyshipping) and I'm still learning English, so I apologize if I say something wrong or don't talk much!
 
-![gif](https://media1.tenor.com/m/iStWv4u15r0AAAAC/pokemon-pokemon-special.gif)
+![gif](https://media1.tenor.com/m/vCkvcedhEFwAAAAC/dp145-kotone.gif)
 
 𝐈 𝐓𝐇𝐈𝐍𝐊 𝐓𝐇𝐀𝐓'𝐒 𝐀𝐋𝐋! 𝐓𝐇𝐀𝐍𝐊 𝐘𝐎𝐔 𝐕𝐄𝐑𝐘 𝐌𝐔𝐂𝐇 𝐀𝐍𝐃 𝐇𝐀𝐕𝐄 𝐀 𝐖𝐎𝐍𝐃𝐄𝐑𝐅𝐔𝐋 𝐃𝐀𝐘! 
 
