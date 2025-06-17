@@ -1,4 +1,4 @@
-![gif](https://media1.tenor.com/m/m8WJFJXwvS4AAAAC/silver-silver-pokemon.gif)
+![gif](https://media1.tenor.com/m/jifQL6QJN0kAAAAC/ethan-pokemon-ethan.gif)
 
 I'm Blue or Lili, you can call me whatever you like, as long as it's one of those two!
 
@@ -34,7 +34,7 @@ I usually find myself alone in Pony Town or with my friend, bothering him or bei
 
 𝒂𝒍𝒍 𝒎𝒚 𝒐𝒄𝒔 ﹕Celeste, Yuki, Ian, Yoko, Kira, Bowie, Yumei and Sylas - All of them are from Pokemon/Pokespe
 
-𝒐𝒕𝒉𝒆𝒓 ﹕I have an ocxcanon with Gold (Metalskyshipping) and I'm still learning English, so I apologize if I say something wrong or don't talk much!
+𝒐𝒕𝒉𝒆𝒓 ﹕I'm still learning English, so I apologize if I say something wrong or don't talk much!
 
 ![gif](https://media1.tenor.com/m/vCkvcedhEFwAAAAC/dp145-kotone.gif)
 
