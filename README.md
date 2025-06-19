@@ -8,7 +8,7 @@ I'M 16, PLEASE DON'T BE WEIRD W ME.
 
 I'm a small artist, I'm online almost every day on Pony Town or any of my social media accounts.
 
-I usually find myself alone in Pony Town or with my friend, bothering him or being quite clingy
+I usually find myself alone in Pony Town
 
  ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
