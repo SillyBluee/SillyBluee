@@ -14,9 +14,9 @@ I usually find myself alone in Pony Town
 
 𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 ﹕SHE / HER / HERS
 
-𝒍𝒊𝒌𝒆𝒔 ﹕Drawing, listening to music, Pokémon, Pokespe, Pokepastas, discord calls, matching pfp, talking about anything that comes to mind, being with people who make me feel safe.
+𝒍𝒊𝒌𝒆𝒔 ﹕Drawing, listening to music, Pokémon, Pokespe, Pokepastas, discord calls, matching pfp, talking about anything that comes to mind, being with people who make me feel safe, horror games.
 
-𝒅𝒊𝒔𝒍𝒊𝒌𝒆𝒔 ﹕Feeling lonely, being left out, loud noises, insecurity, crying, THOSE Pokémon fans.
+𝒅𝒊𝒔𝒍𝒊𝒌𝒆𝒔 ﹕I don't like playing horror games alone, feeling lonely, being left out, loud noises, insecurity, crying, THOSE Pokémon fans.
 
 𝒏𝒂𝒕𝒊𝒐𝒏𝒂𝒍𝒊𝒕𝒚 ﹕ARGENTINE, HELL YEAAAHHH 
 
