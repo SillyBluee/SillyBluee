@@ -43,3 +43,5 @@ I usually find myself alone in Pony Town
 𝐈 𝐓𝐇𝐈𝐍𝐊 𝐓𝐇𝐀𝐓'𝐒 𝐀𝐋𝐋! 𝐓𝐇𝐀𝐍𝐊 𝐘𝐎𝐔 𝐕𝐄𝐑𝐘 𝐌𝐔𝐂𝐇 𝐀𝐍𝐃 𝐇𝐀𝐕𝐄 𝐀 𝐖𝐎𝐍𝐃𝐄𝐑𝐅𝐔𝐋 𝐃𝐀𝐘! 
 
 ![gif](https://media.tenor.com/JCnvb5By8qIAAAAi/banner-devider.gif)
+
+![image](https://i.pinimg.com/736x/1d/d2/a3/1dd2a3ceca576e3f323b34f36fee2d70.jpg)
