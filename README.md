@@ -1,3 +1,5 @@
+𝐈𝐌𝐏𝐎𝐑𝐓𝐀𝐍𝐓: 𝐍𝐎𝐍𝐄 𝐎𝐅 𝐌𝐘 𝐎𝐂𝐒 𝐑𝐄𝐏𝐑𝐄𝐒𝐄𝐍𝐓 𝐌𝐄, 𝐓𝐇𝐄𝐘 𝐀𝐑𝐄 𝐎𝐍𝐋𝐘 𝐎𝐂𝐒, 𝐈𝐍 𝐀𝐍𝐘 𝐂𝐀𝐒𝐄 𝐓𝐇𝐄 𝐎𝐍𝐋𝐘 𝐑𝐄𝐏𝐑𝐄𝐒𝐄𝐍𝐓𝐀𝐓𝐈𝐎𝐍 𝐎𝐅 𝐌𝐄 𝐈𝐒 𝐌𝐘 𝐒𝐎𝐍𝐀!!!
+
 ![gif](https://media1.tenor.com/m/jifQL6QJN0kAAAAC/ethan-pokemon-ethan.gif)
 
 I'm Blue or Lili, you can call me whatever you like, as long as it's one of those two!
