@@ -6,9 +6,9 @@ PLEASE DON'T BE WEIRD W ME.
 
 𝐌𝐎𝐑𝐄 𝐀𝐁𝐎𝐔𝐓 𝐌𝐄 !! ![gif](https://media.tenor.com/YjLpcdpr60QAAAAi/linhas-de-flores.gif)
 
-I'm a small artist, I'm online almost every day on Pony Town or any of my social media accounts.
+I'm a Gold and Ethan yume, I don't make selfship it's just OCxCanon!
 
-I usually find myself alone in Pony Town
+If you don't like Yumeship related stuff (ocxcanon, selfship, etc) please avoid interacting with me.
 
  ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
 
