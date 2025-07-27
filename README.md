@@ -2,7 +2,7 @@
 
 I'm Blue or Lili, you can call me whatever you like, as long as it's one of those two!
 
-I'M 16, PLEASE DON'T BE WEIRD W ME.
+PLEASE DON'T BE WEIRD W ME.
 
 𝐌𝐎𝐑𝐄 𝐀𝐁𝐎𝐔𝐓 𝐌𝐄 !! ![gif](https://media.tenor.com/YjLpcdpr60QAAAAi/linhas-de-flores.gif)
 
