@@ -38,7 +38,7 @@ If you don't like Yumeship related stuff (ocxcanon, selfship, etc) please avoid 
 
 𝒂𝒍𝒍 𝒎𝒚 𝒐𝒄𝒔 ﹕Celeste, Yuki, Ian, Yoko, Kira, Bowie, Yumei and Sylas - All of them are from Pokemon/Pokespe
 
-𝒐𝒕𝒉𝒆𝒓 ﹕I'm still learning English, so I apologize if I say something wrong or don't talk much!
+𝒐𝒕𝒉𝒆𝒓 ﹕I'm still learning English, so I apologize if I say something wrong or don't talk much and sorry if I don't pay attention sometimes, I have ADHD
 
 ![gif](https://media1.tenor.com/m/vCkvcedhEFwAAAAC/dp145-kotone.gif)
 
