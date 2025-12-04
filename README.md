@@ -14,7 +14,7 @@
 
 ╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Stranger Things !!
 
-︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I speak Spanish, I'm from Argentina, I love talking about my OCs and my OCxcanon. I LOVE KONIG, OK? 
+︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I speak Spanish, I love talking about my OCs and my OCxcanon. I feel really identified with Will Byers so if u hate him u basically hate me
 
  
 
