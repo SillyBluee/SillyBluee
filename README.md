@@ -12,7 +12,7 @@
 
 ︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // who knows
 
-╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Stranger Things !!
+╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Ghostbusters, The Turning, Enola Holmes, Stranger Things !!
 
 ︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I speak Spanish, I love talking about my OCs and my OCxcanon. I feel really identified with Will Byers so if u hate him u basically hate me
 
