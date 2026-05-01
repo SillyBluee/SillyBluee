@@ -12,7 +12,7 @@
 
 ︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // who knows
 
-╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Ghostbusters, The Turning, Enola Holmes, Stranger Things, IT: Welcome to Derry !!
+╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Ghostbusters, The Turning, Enola Holmes, Stranger Things, IT: Welcome to Derry, Harry Potter !!
 
 ︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I speak Spanish, I love talking about my OCs and my OCxcanon. I feel really identified with Mike Wheeler so if u hate him u basically hate me. My fav singer is Finn Wolfhard, i love him so so much!
 
