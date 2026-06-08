@@ -14,10 +14,8 @@
 
 ╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Ghostbusters, The Turning, Enola Holmes, Stranger Things, IT: Welcome to Derry, Harry Potter !!
 
-︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I speak Spanish, I love talking about my OCs and my OCxcanon. I feel really identified with Mike Wheeler so if u hate him u basically hate me. My fav singer is Finn Wolfhard, i love him so so much!
+︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I'm from Argentina so I speak Spanish, I love talking about my OCs and my OCxcanon. My fav singer is Finn Wolfhard, i love him so so much!
 
  
 
 ![image](https://64.media.tumblr.com/c5a8897cff65b072f438895eeff2f93e/9779311a6c1667a7-81/s640x960/be86b0646227bbf0de52b093d875142d755f5dfe.pnj)
-
-![gif](https://supplies.ju.mp/assets/images/gallery14/34832a68_original.gif?v=2e2c9a9d)
