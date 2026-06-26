@@ -12,7 +12,7 @@
 
 🍨˖° ⸝⸝ ＩＮＴＲＯ
 
-╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Blue, Ari or Lili !!
+╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Blue or Ari
 
 ︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // Asexual
 
