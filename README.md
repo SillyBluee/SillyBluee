@@ -18,7 +18,7 @@
 
 ╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, LoL, Valorant, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Enola Holmes, Stranger Things, IT: Welcome to Derry, Harry Potter !!
 
-︵ 𝒆𝒙𝒕𝒓𝒂 ﹕I'm from Argentina so I speak Spanish, I love talking about my OCs and my OCxcanon yeyeye. I LOVE LOVE LOVE GLITCHY RED, HE'S MY BOYFRIEND YAYY
+︵ 𝒆𝒙𝒕𝒓𝒂 ﹕ love talking about my OCs and my OCxcanon yeyeye. I LOVE LOVE LOVE GLITCHY RED, HE'S MY BOYFRIEND YAYY
 
  
 
