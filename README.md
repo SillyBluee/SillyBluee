@@ -2,7 +2,7 @@
 
 
 
-• IWC!! // Not so active on Pony Town or any of my social media accounts. •
+• C+H FREELY, MOST IF U LIKE POKEPASTAS OR PKMN!! •
 
  
 
