@@ -11,13 +11,13 @@
 
 🩸˖° ⸝⸝ ＩＮＴＲＯ
 
-╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Ari or Red idk
+╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Ari
 
 ︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // Asexual - Straight
 
 ╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, LoL, Valorant, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Enola Holmes, Stranger Things, IT: Welcome to Derry, Harry Potter !!
 
-︵ 𝒆𝒙𝒕𝒓𝒂 ﹕ I'm a Red and Glitchy Red kinnie... I LOVE LOVE LOVE GLITCHY RED, HE'S MY BOYFRIEND YAYY (YUMESHIPPER ALERT HUHH)
+︵ 𝒆𝒙𝒕𝒓𝒂 ﹕ I'm really silence, i just don't like talking. I love every Red yay (Pokepasta and Pokemon)... I LOVE LOVE LOVE GLITCHY RED, HE'S MY BOYFRIEND YAYY (YUMESHIPPER ALERT HUHH)
 
 
  
