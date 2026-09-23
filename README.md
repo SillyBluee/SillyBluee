@@ -11,7 +11,7 @@
 
 🩸˖° ⸝⸝ ＩＮＴＲＯ
 
-╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Ari
+╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Ari or Azul (Blue)
 
 ︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // Asexual + Straight
 
