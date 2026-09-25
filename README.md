@@ -13,7 +13,7 @@
 
 ╰ 𝒏𝒂𝒎𝒆(𝒔) ﹕Ari or Azul (Blue)
 
-︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // Asexual + Straight + Aromantic
+︵ 𝒑𝒓𝒏𝒔 ⸝ 𝒔𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 ﹕She / Her // Aroace + Straight
 
 ╰ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ⸝ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 ﹕Pokemon, Pokespe, Pokepastas, Call of Duty, LoL, Valorant, Resident Evil, Sailor Moon, Love Live, Pretty Cure, Cardcaptor Sakura, Enola Holmes, Stranger Things, IT: Welcome to Derry, Harry Potter !!
 
